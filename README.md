@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @missionstarbase
+- 👀 I’m interested in developing social platforms
+- 🌱 I’m currently learning startup leadership
+- 💞️ I’m looking to collaborate on Starbase.cloud
+- 📫 How to reach me support@starseed.cloud
+- 
